@@ -1,0 +1,12 @@
+Name: Fatma Sayed Ahmed 
+ID: 21036988 
+Track: UI-UX Design  C2
+
+Design Link: 
+https://www.figma.com/design/NRdnLmB8rXalS5T481jflY/Final?node-id=0-1&t=v0GMvjkO3Y1IBjFR-1
+
+FigJam Link:
+https://www.figma.com/board/Ai7vStZn2L8IiX9iC6d4Ef/Final-Sprint?node-id=65-166&t=Qv56tnfhR6l0aNLD-1
+
+Video Link:
+https://drive.google.com/drive/u/0/folders/1lp3sCPnczz1usrD75hX8onXawm9c9hLy
